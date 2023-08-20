@@ -1,3 +1,1 @@
-#BELGA
-#Belga
 #Belga
